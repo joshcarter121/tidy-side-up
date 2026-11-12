@@ -1,4 +1,4 @@
-# Tidy Side Up: Cozy Cleaning
+# Sunnyside Lane
 
 Privacy policy and terms of use for the game, published with GitHub Pages.
 
